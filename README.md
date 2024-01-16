@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do ErikLima173😁
+## Bem-vindo(a) ao perfil do Erik Lima😁
 
  <div>
    <a href="https://github.com/ErikLima173">
